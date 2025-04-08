@@ -1,0 +1,280 @@
+# O Começo
+
+No começo de tudo, o universo era sem forma, uma vastidão infinita de pensamentos. Desses pensamentos, vieram vontades, e dessas vontades vieram consciências. Entre essas muitas consciências, duas tomaram forma e deram à si nomes. Jazirian e Ahriman.
+
+Jazirian e Ahriman compartilham sua vontade um com o outro, criando um sonho. Esse sonho dá origem à primeira alma, a Alma Pálida, a Alma do Mundo. Ao criarem a Alma, Jazirian e Ahriman descobriram que ela era capaz de manifestar suas vontades em matéria e energia. De uma só vez, todo o potencial criativo das duas criaturas foi liberado, criando o universo.
+
+Juntos, Jazirian e Ahriman dão forma à todas as coisas, e criam uma nova criatura para os fazer companhia, o primeiro deus, Io.
+
+A harmonia da criação é quebrada quando Jaziriam e Ahriman discordam em como seguir em frente após criar o universo. Ahriman, sendo uma criatura de estagnação, desejava preservar o paraíso que eles haviam criado, preferindo preservar a Alma Pálida para que o universo fosse eterno. Jazirian, um ser de dinamismo, queria usar todo o poder da Alma Pálida, criando o máximo possível até que o universo fosse preenchido com todas as coisas que ele queria que existissem, não se importando se elas fossem finitas.
+
+O conflito entre Jazirian e Ahriman, entre a vontade de manter um sonho para sempre e a de sonhar apenas por um momento, a vontade de preservar e a de aproveitar, o conflito entre a vontade de não desistir e a de deixar as coisas seguirem, acabou com a paz do universo recém nascido.
+
+Enfraquecidos após darem tanto de si para a Alma Pálida, Jazirian e Ahriman se destruíram. Tendo se tornado criaturas de carne, eles se enfrentaram com imensurável violência. Jazirian dilacerou Ahriman até que ele não pudesse mais se mover, e Ahriman matou o corpo de Jazirian.
+
+Ahriman se escondeu no interior da criação, nas partes mais escuras do universo. Protegido pelas criaturas que surgiram a partir de seu sangue podre ele se tornou a morte, o fim de todas as coisas, eternamente devorando as almas daqueles que morreram a fim de tentar reconstruir seu corpo quebrado.
+
+Jazirian passou a eternamente reencarnar com o objetivo de experênciar e descobrir tudo que há no universo. De sua carcaça, vieram milhares de espíritos, cada um dando forma a uma nova coisa, criatura e conceito. O corpo de Jazirian se tornou o começo de todas as coisas, e toda a vida surgiu de seu apodrecimento.
+
+# As Crônicas de Io (Pré História)
+
+Io, tendo sido abandonado por seus criadores, passou a guardar a Alma Pálida, a usando para dar ordem ao universo, tentando manter os desejos de ambos Jazirian e Ahriman vivos. Io iria manter o universo ao máximo possível, preservando a Alma Pálida, e ao mesmo tempo, iria garantir que a vida florescesse, eternamente em um estado de mudança. Para esse fim, Io criou centenas de outros deuses, cada um com a função de manter um aspecto do universo funcionando. Para cada deus, Io concedeu um pedaço da Alma Pálida, para que todos compartilhassem a responsabilidade de protegê-la. Mas para si, ele manteve o maior pedaço, e seu deu a responsabilidade de vigiar os outros deuses.
+
+Em um certo momento, Io criou um deus para manter todos os elementos que compõem o universo em ordem. Esse deus era o Primeiro Dragão, criado como uma fusão das aparências que Jazirian e Ahriman tinham assumido. O Primeiro Dragão então criou Bahamut e Tiamat, com o objetivo que eles juntos criassem uma criatura perfeita e eterna tal qual Jazirian e Ahriman. Porém Bahamut e Tiamat eram diferentes demais, então isso nunca aconteceu. Frustrado, o Primeiro Dragão tentou criar a criatura perfeita ele mesmo usando as energias do vazio de onde Jazirian e Ahriman tinham vindo, mas ele falhou e dessa falha surgiu um monstro de fogo e ódio, seu nome era Babylon, e ele teria destruído toda a criação se Io em pessoa não tivesse intervido para selá-lo.
+
+Eventualmente Gwin, o deus do sol, se cansou de Io fragmentando a Alma Pálida, afirmando que o deus dos deuses havia falhado em sua responsabilidade de preservá-la. Reunindo um exército de deuses que concordavam com ele, Gwin derrotou Io e tomou a Alma Pálida para si, fragmentando Io e banindo os deuses que não o apoiaram para fora do plano material, destruindo muitos no processo e roubando seus fragmentos da Alma Pálida.
+
+Furioso, Io decidiu encerrar o experimento de Jazirian e Ahriman e acabar com o universo. Para impedir isso, Gwin criou um portão próximo de onde Io iniciou o fim do mundo, e colocou seu cavaleiro mais poderoso, Sir Artorias, para guardá-lo. A região além do portão ficou conhecida como Terra sem Deus, ou Asshai, na língua nativa da região.
+
+O Primeiro Dragão se recusou a ser expulso, iniciando um conflito contra Gwin e seus deuses que só acabou quando Sir Artorias ameaçou abrir o portão de Asshai. Sir Artorias partiu o mundo em dois, com metade sendo o domínio de Gwin, e metade sendo o domínio do Primeiro Dragão.
+
+# As Guerras do Sol (2000 Anos Antes de Ruina Imperii)
+
+Gwin reuniu seus deuses e construiu uma torre que se erguia até o céu, lentamente se desinteressando com o que acontecia abaixo. A nação de Sanumia se formou ao redor da torre, sendo governados por um clero dedicado à Gwin e seus deuses.
+
+Ao norte de Sanumia, as tribos locais, auxiliadas por um ser que se chamava Agamemnon, se uniram e formaram um Império Remaniano, cuja monarquia seria dedicada à veneração de Io. Em homenagem ao deus dos deuses, os remanianos construíram uma enorme torre que iria rivalizar o obelisco em Sanumia. Gwin, furioso com a afronta à seu poder, enviou Sir Artórias para destruir o Império.
+
+Desesperados, os remanianos seguiram a sugestão de um imortal vindo de uma terra distante chamado Ling Bloodstone. Eles sacrificaram o filho recém nascido do imperador para invocar um espírito de além das estrelas, um demônio cujo nome era Murakumo. Como recompensa por ajudar sua vinda ao mundo físico, Murakumo recompensou Ling com conhecimento mágico que nas mãos do imortal daria origem à arte da necromancia.
+
+Murakumo destruiu todos os exércitos enviados contra ele, mas ao invés de ajudar os remanianos contra Sir Artórias, o demônio marchou contra Sanumia, desafiando qualquer um que encontrasse para duelos.
+
+Como um último ato de desespero, o Imperador Remaniano pediu a Ling por uma arma que estivesse sob seu controle. Ling disse que prepararia um ritual, mas que para ser bem sucedido o Imperador precisaria devorar toda a população da capital, homens, mulheres e crianças. Acreditando que Sir Artórias estavam quase em suas muralhas, o Imperador não viu alternativa a não ser fazer o que o necromante dizia. Quando o último habitante da cidade foi consumido, Ling concluiu o ritual, transformando o Imperador em um monstro colossal de poder apocalíptico, mas que ainda tinha a mente do Imperador, agora enlouquecido pelo que ele tinha feito.
+
+Quando Murakumo chegou na base da torre onde Gwin estava, ele encontrou um homem com um manto de lobo. Antes que o demônio pudesse falar qualquer coisa, o homem o desafiou para um duelo. A luta durou dias, lentamente seguindo para o norte onde o homem com manto de lobo clamou pela ajuda de Asmodeus, uma das criaturas criadas pelo sangue de Ahriman. Com a ajuda de Asmodeus, a forma física do demônio foi destruída e sua alma aprisionada em uma espada. Séculos depois, o local onde a batalha aconteceu se tornou um covil de usuários de magia negra, ficando conhecido como Beco de Bruxo.
+
+O homem com manto de lobo se revelou para as cidades Remanianas como Sir Artórias, e ordenou que elas se rendessem, preferindo não ter que matar inocentes. As cidades se renderam, mas o monstro que o imperador se tornou ainda estava vagando pela terra causando destruição. Sir Artórias atraiu a criatura até a cidade de Tarascon, onde ele convocou a ajuda de Gwin, que veio em pessoa e transformou a criatura em pedra. Na mitologia local, a criatura ficou conhecida como "O Tarrasque", em reconhecimento da última cidade que ele devorou. O necromante Ling Bloodstone desapareceu da história depois disso. Gwin ordenou que o povo remaniano fosse apagado da terra, assim como o nome de Io. A cultura dos remanianos iria permanecer no entanto, se misturando com os outros povos locais. Quanto a religião de Io, seu nome eventualmente se perdeu, dando origem a Igreja do Deus do Vento, "cujo nome foi levado pelo vento".
+
+Muitos séculos depois, o homem chamado Robert conquista a terra ao redor do Portão de Asshai e as terras do antigo império, unificando todos os povos da região na nação de Doragon. Robert governa Doragon por centenas de anos, eventualmente abdicando e dando lugar à uma república. Robert desaparece, deixando apenas seu martelo de guerra. Ele se torna uma lenda para o povo de Doragon, com o martelo de guerra sendo um símbolo da nação. Porém, ao longo dos anos sua verdadeira natureza foi esquecida, e ele se tornou apenas uma figura mitológica.
+
+Um homem chamado Derek Becker travou guerra contra os anões das montanhas do Espinhaço, conquistando todo o sul de Balearis e formando um reino que duraria por milhares de anos. Derek nunca viu os resultados de seu esforço no entanto, tendo sido assassinado por sua esposa.
+
+Durante a guerra contra Gwin, Tiamat tentou tomar a Alma Pálida dele, e o deus do sol a matou em troca. O corpo de Tiamat foi usado como uma ponte para acessar o local em que Gwin guardava a Alma Pálida, mas o Primeiro Dragão estava ferido demais para tentar, então ele se deixou morrer e deixou sua alma com Bahamut, que a deu para o humano em quem ele confiava, o mesmo que tinha comandado a lealdade dos dragões que Bahamut e Tiamat criaram. Bahamut deu ao homem a alma de Tiamat e metade da sua, o transformando em um dragão em forma humana. O homem se tornou o primeiro valiriano, cujos descendentes seriam a origem do povo e da família imperial Von Valyrium.
+
+# A Era do Desgaste (1000 ARI - 50 ARI)
+
+Ao longo de mil anos, a Alma Pálida nas mãos dos valirianos e dos sanumianos impediram que suas civilizações evoluíssem, mas também garantiram que elas sobreviveriam. Pessoas nasciam e morriam, sem nunca experienciar mudança social, política, econômica ou tecnológica, e o mundo estagnou ao ponto de ficar podre.
+
+Tão podre era o estado das instituições mantidas pela Alma Pálida, que ambas começaram a lentamente ruir por dentro. Os valirianos eram governados pela família imperial e pelos dragões anciões, com famílias nobres com sangue de dragão controlando as terras do império e a população geral de valirianos sendo sustentada por trabalho forçado executado por habitantes dos reinos satélites do império que os senhores de dragão permitiam existir simplesmente para que eles tivessem uma fonte constante de escravos. Isto é, com a exceção dos elfos de Hakehia, que se isoloram do resto do mundo e passaram os milênios em constante guerra contra os valirianos, lentamente evoluindo tecnologicamente até o ponto em que conseguiam enfrentar os dragões de igual pra igual com suas invenções.
+
+Enquanto isso os Sanumianos eram governados pelo clero centralizado no Pontífice que governava a terra em nome de Gwin, apesar do deus nunca mais ter se manifestado diretamente na terra. Sem seu deus, o clero se tornou corrupto e tirânico, impondo leis que restringiam o que a população podia acreditar, fazer, dizer e até pensar. Essa tirania era mantida por meio de um monopólio da magia que o clero mantinha com força bruta, eliminando ou recrutando qualquer praticamente do que eles chamavam de "artes subversivas". No entanto, diferente dos valirianos, os sanumianos não tinham dragões que os permitiam manter um domínio direto do continente. Ao norte, Doragon era uma nação independente e orgulhosa. Ao sul, as muitas casas nobres que dominavam os restos do Reino do Espinhaço de Derek Becker prestavam tributo à Sanumia, mas vaziam o que queriam. Até mesmo a Ordem da Estrela Negra, que se estabeleceu no Espinhaço com permição de Sanumia para caçar infernalistas, passou a operar independentemente ao longo dos séculos, ao Leste, um cabal de deuses que a muito tempo tinham se aliado à Gwin contra Io diviam metade do continente entre as Terras da Tempestade e as Terras Verdes. Por fim, as nações anões lentamente se tornavam extintas, nunca se recuperando depois do massacre feito por Derek Becker.
+
+# O Protocolo Ruina Imperii (50 - 20 ARI)
+
+Uma das reencarnações de Jazirian, um homem chamado Benjamin, continua o processo de viajar pelo mundo afim de experienciar tudo que ele poder. Em sua jornada, ele conheceu Selesia, uma barda das Terras do Espinhaço e descendente de Agamemnon. Darius Ainsley, um mercenário e assassino vindo do Beco de Bruxo. Félix Ludendorff, um experimento hakeniano que fugiu e se tornou um pirata instável. O Imediato, o braço direito de Félix que perdeu a alma quando navegando perto demais de Asshai. Half "Meia Orelha", um patrulheiro do Olho de Deus. Conan Asinus, um mago minotauro exilado das Terras Verdes. Bubbles, um pseudodragão exilado de Valyria. E Vivec, um metamorfo exilado de Hakehia que escapou junto de Félix e sua irmã Alicia, que morava na capital de Doragon, Robertsburg sendo sustentada pelo irmão por ter um corpo debilitado.
+
+O grupo passou décadas vagando por Balearis, as vezes se separando, as vezes se reunindo de novo. Ao longo dos anos, Félix, O Imediato e Half conquistaram a ilha de Pontemar e formaram uma frota de piratas à serviço de Sanumia. Benjamin, Conan e Bubbles estabeleceram uma biblioteca para guardar o conhecimento arcano reunido pelo grupo. E Darius, Selesia e Vivec continuam servindo como mercenários, se destacando nas guerras entre as famílias do Espinhaço.
+
+Esse grupo de aventureiros ficou conhecido por todo o continente, com Selesia transformando suas empreitadas em músicas que seriam ouvidas nas tavernas e cortes de Balearis. Eventualmente, essas aventuras fizeram com que Benjamin se sentisse de um jeito que nenhuma das outras reencarnações de Jazirian sentiram: Satisfeito. Ele viu o que tinha pra ver, fez o que tinha pra fazer, e apesar de estar ciente de que o ciclo de reencarnações continuaria, ele decidiu que essa instância de Jazirian podia descansar.
+
+> \[!important\] 40 ARI
+> - Eladrin Eladron (Victor) nasce na cidade élfica de Silvertown na fronteira entre Doragon, Sanumia, as Terras do Espinhaço e as Terras da Tempestade. Seu nascimento é visto como azarado por Eladrin ser descendente de um homem que traiu a cidade séculos antes.
+
+No decorrer da jornada do grupo, Selesia tinha se relacionado com todos os membros (exceto Benjamin e Bubbles), mas no fim foi com Darius que ela acabou, para a dor de Félix e Vivec que a amavam profundamente. Selesia e Darius construiram uma vida na pequena vila de Ash House nas Terras do Espinhaço, onde eles tem um filho. Algum tempo depois, Selesia morre de tuberculose, deixando Darius para cuidar da criança. Ele ensina o que pode para o filho, contando parte das histórias do bando. Eventualmente, Darius morre de câncer, deixando o filho sozinho.
+
+> \[!important\] 25 ARI
+> - O herdeiro do Império Valyriano, Aerion, estupra sua irmã Isabel, que comete suicídio. O ato é na verdade uma conspiração entre Vivec e um dos membros do Conclave dos Dragões Anciões de Valyria, Avalon. Vivec se disfarçou de Aerion e cometeu o crime, e Avalon incrimou Aerion para causar seu exílio. A criança foge, sendo eventualmente resgatada por um bardo chamado Iosif, que dá à ela o nome de seu filho falecido: Nix (Lucca).
+
+Benjamin e Alicia eventualmente se casam, mas ela morre no parto da filha do casal. Benjamin pede a ajuda de Vivec, mas o metamorfo desapareceu. Benjamin dá o nome da mãe da garota para ela e abre um orfanato para que ela tenha outras crianças para conviver.
+
+> \[!important\] 20 ARI
+> - Um sacerdote dos deuses da tempestade se apaixona por uma elfa de Silvertown, essa união foi abençoada pelos deuses, resultando no nascimento de um santo que foi chamado de Adran Nailo (Holanda). A cidade foi renoamada para Adrianópolis em homenagem à criança. Adran, no entanto, se recusou à viver como sacerdote e fugiu para Doragon onde se tornou um bandido e membro da gangue Arco Quebrado.
+
+> \[!important\] 18 ARI
+> - Darius e Selesia tem um filho chamado Shaeron Ainsley (Álvaro) no sul das Terras do Espinhaço. Quando seus pais morreram, Shaeron vagou até Doragon onde foi criado por Benjamin, Conan e Bubbles, junto das filhas de Benjamin Ellaria e Alicia.
+>
+> - Na fronteira entre as Terras do Espinhaço e as Terras Verdes, numa comunidade de homens-serpente, um garoto com nome de Axel Serpentines (Arthos) nasce. Durante a gravidez, uma entidade do vazio manipula o feto, concedendo habilidades mágicas ao garoto. Axel foi expulso de casa decido à seus poderes, e eventualmente foi caputurado pelo soldado Sanumiano Maxwell e preso na fronteira com Doragon.
+>
+> - Ao norte de Sanumia, uma comunidade de descendentes de lycantropos vivia escondida do clero. Nessa comunidade, um garoto chamado Máximus (Leonidas) cresceu sonhando em se tornar um cavaleiro. Eventualmente Máximus se juntou à uma das ordens de cavalaria de Sanumia, sendo aceito como paladino. Antes de seu primeiro serviço, no entanto, a natureza de Máximus é descoberta e ele é capturado pelo soldado Maxwell e preso na fronteira com Doragon.
+>   \# A Conspiração de Doomfall (17 ARI)
+
+## 17 ARI
+
+Sem rumo depois da morte de Selesia e de sua irmã, Vivec começa a sonhar com o que poderia ter sido feito diferente, em um mundo onde coisas assim não aconteceriam. Ele viaja o mundo em reflexão até que um dia, em Águas Profundas Vivec se encontra com Agamemnon, que o oferece a chance de criar um mundo melhor. O metamorfo, no entanto, recusa o espírito, não aceitando sua visão de um mundo ideal, mas ele permanece na cidade amaldiçoada, em busca de uma proposta diferente.
+\## 16 ARI
+Aerion é exilado por seu crime, deixando seu irmão mais novo Frederick, que era metade doragonita e fruto do segundo casamento de seu pai, como herdeiro do império. Aerion vaga as terras do império como um cavaleiro andante, até ser abordado por uma figura misteriosa que se oferece para ajudá-lo a tomar o trono, em troca de um favor.
+
+Em Águas Profundas, Vivec se encontra com uma figura misteriosa que se oferece para guiar o mesmo por Asshai. O metamorfo concorda e a figura o leva em segurança até o ponto onde Jazirian e Ahriman criaram o universo, o local é um campo de trigo infinito preso em um eterno nascer do sol. Vivec ficou fascinado com a visão, percebendo isso o estranho pediu a ajuda de Vivec em um plano.
+
+Sentindo que algo estava errado, Benjamin tenta contatar o clero de Sanumia, mas é incapaz de se comunicar com o Pontífice. Ele recorre à rezar, e é respondido pela filha de Gwin, a Princesa da Luz Solar que concede à Benjamin uma filha com parte de sua centelha divina. Benjamin chama a menina de Ellaria e deposita nela parte da vontade de Jazirian, enfraquecendo sua forma física e o deixando mortalmente doente.
+\## 15 ARI
+O imperador de Valyria morre, deixando o trono nas mãos de Frederick. Ele é mal visto pelas elites e dragões por não ser puramente Valyriano.
+
+Vivec, Aerion e o estranho que se introduziu como Ling viajaram o império ajudando obras e construções, sempre aceitando como pagamento apenas a permissão para construir obeliscos em homenagem ao imperador Frederick. O imperador, acreditando que seu irmão estava pagando pelo seu crime, enviou recursos para as obras do grupo, mas também magos responsáveis por chegar se os obeliscos eram perigosos. Os magos sempre concluiam que os obeliscos não emanavam energia mágica.
+
+O filho bastardo de Aerion é encontrado pelo bardo Iosif, que o adota e o dá o nome Nix.
+\## 14 ARI
+Sentindo algo estranho no Portão de Asshai, Artórias reúne um grupo de mercenários de elite para investigar. Apenas um membro do grupo, o paladino Yarwan (Victor), retorna, ele é recompensado por Sanumia, se tornando um anjo à serviço de Gwin, sua irmã Sheron é admitida como cavaleira pelo clero. Entre os membros do grupo que não voltaram, estava um arqueiro chamado Alcides Tantalo, que deixou para trás um filho pequeno chamado Ed e uma esposa.
+\## 13 ARI
+Shaeron viaja norte até Doragon, onde é resgatado por Benjamin que o cria no orfanato junto de suas filhas que o apelidam de Shay.
+\## 7 ARI
+O imperador Frederick se encontra com dificuldade de passar leis devido à falta de suporte da nobreza. Aerion sugere mover a corte para longe da capital em Valyria e ao invés disso formar uma nova capital na cidade de Doomfall, onde Babylon foi derrotado milhares de anos antes. O imperador concorda.
+
+Ling enfraquece a prisão de Babylon, mas precisa de sangue imperial para libertar a criatura. A conspiração decide esperar o momento certo.
+\## 5 ARI
+Adran Nailo foge de casa e se torna um ladrão em Doragon junto da gangue do Arco Quebrado.
+
+Axel Serpentines faz um pacto com Laplace, a entidade do vazio que interferiu em seu nascimento, para se tornar um bruxo e ganhar poder.
+
+Maximus inicia seu treinamento para se tornar um cavaleiro.
+
+Um explorador de ruínas encontra uma espada amaldiçoada contendo o espírito aprisionado de Murakumo. Ele fazer um pacto com o demônio, se tornando um bruxo e adquirindo grande poder.
+\## 2 ARI
+Manipulado por Vivec, o imperador valiriano Frederick decide romper com milênios de tradição e rivalidade para se casar com uma representante do governo de Hakehia. A decisão é criticada abertamente pela maior parte da nobreza, incluindo os dragões anciãos. Uma missão diplomática é enviada para Hakehia afim de encontrar uma esposa.
+\## 1 ARI
+Manipulados por Vivec, o governo hakehiano aceita a proposta de paz, concordando em um casamento em um ano.
+
+O bruxo é enviado ao inferno por uma tribo nas terras verdes. Com o poder de Murakumo, ele enfrenta as forças do inferno sozinho até chegar no senhor do nono círculo e senhor das profundezas, Asmodeus. O diabo oferece um acordo, a alma de Murakumo, aprisionada na espada e sem maneiras de se defender, em troca de poder inimaginável.
+\## 6 meses ARI
+Axel Serpentines e Maximus são presos por Maxwell ao norte de Sanumia.
+
+Iosif morre de velhice, deixando Nix sozinho para vagar.
+
+Benjamin começa a morrer. Shay, Alicia e Ellaria começam a preparar uma viagem para longe.
+
+Sendo procurado pelas autoridades de Doragon, Adran Nailo começa a procurar um lugar para escapar.
+
+Tendo sido exilado de Silvertown, Eladrin tenta descobrir o que fazer com a própria vida.
+
+## 0, Ruina Imperii
+
+Em seu leito de morte, Benjamin deixa para Conan instruções de como reunir as pessoas mais poderosas do mundo para evitar uma catástrofe, um plano que ele chamou de Protocolo Ruina Imperii.
+
+Shay, Alicia e Ellaria pegam um barco com Félix, que se introduz como Capitão Felino, para Doomfall.
+
+Richard, o líder do Arco Quebrado, diz para Adran se misturar com o casamento acontecendo em Doomfall e desaparecer.
+
+Eladrin decide recomeçar sua vida em um novo continente, e vai para Doomfall tentar conseguir emprego.
+
+No dia do casamento, Ling usa o sangue de Aerion para formar uma rachadura na prisão de Babylon, libertando parte de seu poder na forma de uma enorme explosão. Frederick e sua esposa são mortos, assim como todos presentes em Doomfall. Todos exceto Shay, Adran, Eladrin, Alicia, Ellaria, e um pequeno grupo de mercenários.
+
+Vivec e Ling rapidamente caçam os membros da família imperial que sobraram. Eles são bem sucedidos em eliminar a maioria, com apenas os irmãos mais novos do imperador e de Aerion sobrando, Aegon e Beatrice.
+
+Escapando das ruínas da cidade, o grupo é interceptado por Aerion, que sequestra Ellaria, tentando forçá-la a trabalhar com a Conspiração. O grupo então se separa, com os mercenários indo para direções diferentes, Alicia decidindo voltar para Doragon para ficar com seu pai, Shay se reunindo com o Capitão Felino, e Adran e Eladrin indo para o sul.
+
+Adran e Eladrin acidentalmente mata um coelho, o que irrita o dragão que tinha aquela região como território. O dragão obriga a dupla a trabalhar para ele e os envia para matar a duquesa de uma província vizinha afim de roubar a terra para si. A missão não vai como esperado, com Adran sendo sequestrado e torturado pela duquesa. Eladrin consegue resgatá-lo e a dupla decide não comentar com outras pessoas sobre o que aconteceu. Eles continuam para o oeste onde encontram o Arquimago Ioannes realizando um ritual para tentar consertar a prisão de Babylon e permitir que um grupo fosse enviado para investigar as ruínas de Doomfall. Adran e Eladrin acidentalmente atrapalham o ritual, distorcendo a realidade e transformando Ioannes e a população em abominações de carne. O grupo é resgatado pelo Capitão Felino e concordam em não falar para ninguém sobre o que aconteceu.
+
+Enquanto isso, Shay e o Capitão Felino enfrentam o pirata Euron, que estava estranhamente sequestrando seu próprio sobrinho depois de ter voltado de Doomfall. Euron é derrotado mas escapa. Sentindo que algo estava errado, o Capitão Felino decide se aliar com o príncipe Aegon para tentar acalmar a guerra civil que tinha se iniciado com a morte do imperador e de grande parte da família imperial.
+
+Com o país colapsando, Nix decide fugir para o sul onde é capturado por Robert Velarion e vendido para o príncipe Aegon.
+
+Agora reunidos, os sobreviventes de Doomfall são mandados por Aegon para os esgotos da cidade de Yunkai, para tentar descobrir uma passagem por onde o exército do príncipe poderia passar. O grupo nunca elaborou sobre o que aconteceu lá, mas a cidade repentinamente foi sugada por um fosso e completamente destruída, junto das milhões de pessoas que residiam ali. Os membros do grupo foram considerados heróis pela vitória.
+
+Marchando contra Astapor, Aegon foi informado que sua irmã Beatrice era uma prisioneira na cidade, e que ela seria morta se o príncipe atacasse. Aegon decidiu resolver a situação com a menor quantidade de mortes possível, e desafiou a cidade para um duelo 1 contra 1. A cidade escolheu um campeão e Aegon o derrotou, mas a cidade o traiu e o príncipe foi assassinado. Furiosos com a traição, os generais do príncipe ordenaram um ataque contra a cidade.
+
+Durante o ataque, Eladrin foi morto por uma rocha arremessada de uma catapulta nas muralhas. Ele deixou centenas de filhos para trás. O grupo concordou em nunca elaborar em como ele teve tantos filhos.
+
+Entre os combatentes, estava Derek Becker, tendo sido trazido de volta pelo Deus do Vento. Ele depois foi mandado para Pontemar onde o Capitão Felino o envia junto do bruxo para investigar a situação no Beco de Bruxo.
+
+Na batalha em Astapor, Adran Nailo morre mas é trazido de volta pelos deuses da tempestade, que o alertam que essa seria a única vez que eles iriam interferir, e apenas por seu nascimento ter sido abençoado por eles.
+
+O grupo derruba as muralhas de Astapor, encontrando os colonos valirianos sendo massacrados pela população local. Shay para a chacina, e impede que o exército de Aegon revide nos nativos de Astapor. Em meio à batalha, Nix encontra Beatrice e decide a proteger.
+
+Enquanto o exército de Aegon debandava, e a população de Astapor tentava parar o incêndio se alastrando pela cidade, Euron ataca portando magias estranhas e potentes. Adran é morto, mas seu espírito confronta os deuses da tempestade, destruindo um deles e roubando sua divindade, retornando para o mundo dos vivos e, junto do resto do grupo, mata Euron, porém seu espírito escapa.
+
+Quando o grupo estava saindo da cidade, os mortos da batalha começaram a se erguer, e os estranhos obeliscos espalhados pelas construções da cidade radiavam uma estranha energia que impedia a conjuração de feitiços. Nix guia a população para longe da cidade, Shay defende a multidão enquanto Adran buscava um caminho para longe dos zumbis. Ellaria retornou, portando armas e magias entregues por Aerion, e com a ajuda dela o grupo consegue levar a população até Mance Rayder, um dos oficiais no exército de Aegon. Ellaria decide retornar para Aerion.
+
+Shay recebe uma carta de Conan avisando da morte de Benjamin, o que o convence a escapar da guerra em uma canoa. Enquanto navegando pela costa de Hakehia, ele é fuzilado e morto, mas estranhamente retorna à vida como um morto vivo, ele é resgatado por Félix que explica que sua ressurreição implica um problema com a Alma Pálida.
+
+Gwin, deus do sol, depois de milênios como o senhor do universo, perdeu o interesse. Ele foi criado por Io com uma percepção humana de tempo, então depois de tantos anos ele estava cansado. Quando os deuses da tempestade permitiram que Adran Nailo tomasse um dos fragmentos da Alma Pálida, Gwin percebeu que até seus aliados contra Io se viraram contra ele. Não se importante mais com o universo, Gwin decidiu abandonar a Alma Pálida e deixar o mundo cair em anarquia. Abandonados pelo seu líder, a maior parte da corte divina de Gwin decidiu guerrear contra Adran Nailo, na esperança que sua morte traria o deus do sol de volta. Um único anjo é contra a decisão, e seu nome era Yarwan.
+
+Yarwan é banido da corte e condenado à viver na terra como um mortal. Ele decide ajudar Adran Nailo na terra contra os deuses de Sanumia. No caminho, ele encontra um grupo de kobolds com uma ideologia radical. Os kobolds convencem Yarwan que o sistema penitênciário é uma instituição opressiva, então ele decide libertar Axel e Maximus da prisão, derrotando a charada dos guardiões das muralhas da cidade e gentilmente pedindo à Maxwell que eles fossem soltos. Maxwell decidiu que não era pago o suficiente para aquilo.
+
+Quando o exército de Sanumia marchou contra Silvertown, a cidade desapareceu sem deixar rastros, deixando os deuses do sol extremamente confusos.
+
+Adran, Nix e Beatrice chegam até as Terras da Tempestade, onde se reúnem com Yarwan, Axel e Maximus. Yarwan percebe um fragmento do divino na menina. O grupo reúne as tribos da tempestade, formando um exército para lutar contra Sanumia, e apesar de Axel destruir a maior parte do exército de Sanumia com uma explosão termonuclear, eles são derrotados, as Terras da Tempestade são saqueadas e o grupo é forçado a fugir.
+
+Yarwan se esconde com os kobolds, que o radicalizam.
+
+Adran, Nix, Axel, Maximus e Beatrice tentam se esconder com o Arco Quebrado em seu esconderijo, mas descobrem que Richard tinha sido esfolado por soldados sanumianos. Sanumia ataca a cidade, e com a ajuda do espírito de avareza Tiberius Silvercoin, o grupo é bem sucedido, apesar de Nix ter morrido e seu espírito ter sido forçado à fazer um pacto com um entidade do vazio para se manter vivo.
+
+O grupo trabalha por Tiberius por meses, limpando a cidade de gangues rivais até que Sanumia retorna. Percebendo que a cidade não tinha mais chance de se defender, Tiberius convence Nix, Axel e Maximus à trair Adran e o entregar para os sanumianos.
+
+No Beco de Bruxo, Derek e o bruxo enfrentam o espírito de Euron que havia tomado a cidade. A dupla é derrotada e o corpo de Derek é aprisionado pelo pirata.
+
+Adran é auxiliado por traidores em Sanumia e Yarwan e escapa.
+
+Shay encontra o Deus do Vento e os dois conversam sobre filosofia. Eventualmente, Shay se reúne com Alicia, e os dois são felizes por um tempo. Mas uma noite, Shay acorda ao lado do corpo de Alicia, aparentemente tendo sido o responsável por aquilo. Ele é visitado por Euron, que oferece um jeito de trazer ela de volta. Euron se revela como Vivec, antigo companheiro dos pais de Shay, e diz que Alicia ainda está viva, mas que a natureza de seu corpo é semelhante à irmã de Vivec e mãe da garota, e que a tecnologia que Vivec encontrou em Hakehia, e que Shay havia dado à Alicia na forma de o que ele pensava que era uma faca, a tornaria melhor, juntando o melhor de Benjamin e o melhor de sua irmã. Vivec oferece Shay a chance de se juntar a ele, para construir um mundo melhor junto dele, e de Alicia. Shay recusa, e libera as armas de destruição em massa construidas por Hakehia ao redor do mundo, condenado milhões de inocentes ao fogo e radiação.
+
+Shay retorna ao Capitão Felino, que reúne ele com Adran e Yarwan. Percebendo que foi precipitado em sua escolha, Tiberius envia Nix, Axel e Maximus para ajudar Adran. Na capital de Sanumia, o grupo é auxiliado por Ed Tantalo, destruindo a cidade e atacando o Pontífice diretamente. Após derrotar e poupar os defensores, que incluiam a irmã de Yarwam, Sharon, o grupo descobre que o Pontífice havia sido possuído por Asmodeus, que estava atrás dos fragmentos da Alma Pálida que Gwin deixou para trás.
+
+Os deuses da tempestade imploram para Adran ir até o Portão de Asshai. Lá, eles revelam que vão se juntar à Io e destruir o universo para acabar com o caos e recomeçar.
+
+O grupo passa os próximos meses vagando pelo mundo em uma corrida contra o tempo para encontrar todos os fragmentos da Alma Pálida.
+
+Ling Bloodstone e seu exército de mortos vivos destrói o continente Titã, exterminando 60% da população mundial em alguns meses e os transformando em mortos vivos em seu exército. Aerion se arrependeu de causar esse desastre e decide se declarar como imperador, reunindo um exército de dragões para defender o mundo do necromante.
+
+O general Vendrick toma poder em Doragon, destruindo a República. Após Nix, Axel e Maximus derrotarem o espírito de Robert, Lorithia, a filha mais nova de Vendrick, entrega o fragmento da Alma Pálida que a mantinha viva para o trio. Vendrick e seus filhos Histria e Dremerius, invadem Sanumia e massacram sua população.
+
+Finalmente tendo reunido todos os fragmentos da Alma Pálida, o grupo viaja até o inferno, onde sacrificam o sangue sagrado de Aerion para abrir um portal até a Alma Pálida. Ling Bloodstone os segue até o fim do mundo, onde percebe que sua deusa se recusa a voltar para o mundo que ele criou, indiferente à própria destruição, o necromante permite que o grupo o destrua, porém sua magia permanece, apesar de enfraquecida.
+
+No fim de todas as coisas, o grupo encontra e salva Ellaria, que tinha desistido de tudo depois que sua amante morreu, e eles confrontam Gwin, que explica suas ações mas não tenta se defender. O grupo, agora se chamando de Inacesos, vai até o local onde Jazirian e Ahriman criaram o universo, para decidir o que fazer com a Alma Pálida quando são confrontados por Agamenmon, que se declara com a Criança Pálida criada por Io para herdar o universo como um ser perfeito. O grupo recusa o falso deus e finalmente encontram Io, que tenta os impedir de usar a Alma Pálida.
+
+Mas ao invés de lutar para manter a Alma Pálida, o grupo decide que ninguém deveria tê-la. Liberando toda sua energia no ponto em que o universo começou, os Inacesos liberam a Alma Pálida no universo, tornando a criação eterna e a mantendo em um constante estado de mudança, finalmente cumprindo o desejo de Jazirian e Ahriman, destruindo Asshai, parando as guerras, eliminando o exército de mortos vivos e salvando o mundo.
+
+Incapaz de aceitar que seu objetivo foi cumprido, e enlouquecido após milênios escondido no inferno, Ahriman ataca os Inacesos para tentar roubar a Alma Pálida. Artórias e o espírito de Robert se sacrificam, eternamente batalhando a serpente para evitar o fim do mundo. Os Inacesos escapam.
+
+Quando os Inacesos voltaram para o plano material, eles caçaram e destruíram Vivec, que estava tentando despertar o Tarrasque de sua prisão de pedra.
+
+Beatrice recusou o trono do império, dando o poder para um conselho de 10 dragões anciões, o que ofendeu a população profundamente religiosa de Valyria, que acreditava que Bia tinha sido profetizada para trazer uma era de ouro. A decisão também enfureceu a nobreza, os donos de terra e os comerciantes, cujos privilégios foram negados pelo novo conselho. Os dragões mais novos também se sentiram excluídos do novo império, e muitos se recusaram a reconhecer a autoridade dos anciões.
+\# A Era dos Inacesos
+
+## 1 DRI (Depois de Ruina Imperii)
+
+Axel Serpentines negocia com os os dragões anciões de Valyria para que eles garantam uma série de novos direitos para a população. Além disso, o governo valiriano se tornaria oficialmente uma regência parlamentar, semelhante à Doragon antes do golpe de estado de Vendrick. Isso ajuda a satisfazer os comerciantes e nobres, mas os dragões mais novos continuam insatisfeitos.
+
+Maximus se junta à Estrela Negra em busca de mais poder.
+
+Nix começa a criar o que se tornaria a ideologia do Bom Bardo, um código de conduta e filosofia baseada em usar magia com base em emoções e usar esse poder para prestar serviços médicos e resolver conflitos de maneira pacífica.
+
+Adran Nailo se casa com a filha de Half Meia Orelha.
+
+Shay viaja pelo mundo, explorando continentes destruidos por Asshai ou por Ling.
+
+Yarwan criou um vinhedo em Doragon que servia como uma comuna para kobolds.
+
+Ellaria vagou pelo mundo como uma cavaleira andante.
+
+Alicia passou a cuidar do orfanato de Benjamin.
+
+Conan e Bubbles compilaram os eventos das últimas décadas em uma série de livros.
+
+Vendrick, Histria e Dremerius conquistam as Terras do Espinhaço.
+
+Ed Tantallo rouba o corpo de Derek Becker para fazer experimentos.
+\## 5 DRI
+
+Shay adota uma garota com sangue infernal chamada Saori.
+
+Axel decide formalizar o Protocolo Ruina Imperii criado por Benjamin, e cria uma organização militar reunindo as pessoas mais poderosas do mundo para evitar que catástrofes como a Conspiração de Doomfall aconteçam de novo. A organização ficou conhecida como A Ordem de Libra. A Ordem foi aceita por Valyria e Doragon como uma força legítima para a manutenção da paz. Ela é liderada pela Guilda das Sete Estrelas, com 7 líderes cumprindo funções distintas.
+
+Maximus faz um pacto com um espírito malígno para tomar o controle da Estrela Negra e se tornar ainda mais poderoso. Ele usa a Estrela Negra como uma polícia secreta auxiliando a Ordem de Libra em manter a paz no mundo. Shay frequentemente participa de operações da Estrela Negra, muitas vezes fornecendo informações falsas.
+
+O vinhedo de Yarwan se torna uma vila.
+
+Adran, Bubbles e Conan reuniram uma grande quantidade de artefatos e conhecimento arcano em uma enorme biblioteca, colocaram essa biblioteca em uma dimensão de bolso dentro da mochila de um druida, e criaram a Torre da Tempestade como tanto um local seguro para guardar a entrada para a biblioteca, quanto um local de estudo mágico. A Torre ficaria constantemente aparecendo e desaparecendo em locais aleatórios.
+
+Um chapéu de bruxo começou a aparecer pelo mundo, possuindo quem vestisse com o espírito do usuário original.
+\## 6 DRI
+
+Shay encontra a próxima reencarnação de Jazirian na forma de um rapaz chamado Malik.
+
+A Ordem de Libra reúne os Inacesos, os dragões anciões de Valyria, a Estrela Negra, a Torre da Tempestade e centenas de outros arcanistas para conjurar o feitiço mais poderoso da história. O feitiço remodelou o universo, transformando o planeta em uma esfera em looping eterno, onde o fundo do oceano se conecta com a estratosfera e vice e versa. Graças à esse feitiço, nunca mais criaturas do além poderiam se manifestar fisicamente no plano material. Além disso, Ahriman, Artórias e Robert foram aprisionados no centro desse looping no que se tornou a lua. As energias da Alma Pálida foram liberadas, criando o sol e firmando a idea de que ninguém mais poderia ter poder sobre ela. O feitiço ficou conhecido como Mar Estrelado devido à um poema que Nix criou logo após a conjuração.
+
+Shay guardou as informações sobre o feitiço e todo o conhecimento que ele obteve sobre o mundo e a natureza do universo em um livro, o Inevitabilis.
+\## 7 DRI
+
+Os dragões anciões começam a perceber um enfraquecimento da magia.
+
+Shay mata o Capitão Felino para manter uma promessa.
+\## 14 DRI
+
+Saori, Malik e Beatrice se juntam à Ordem de Libra.
+\## 15 DRI
+
+Um dos experimentos de Ed Tantallo dão terrivelmente errado e ele acidentalmente cria um clone de Derek Becker que sai do controle e mata Ed. A Ordem de Libra consegue derrotar o clone, mas logo descobrem que ele é imortal, então decidem aprisioná-lo.
+\## 20 DRI
+Ellaria retorna e se junta à Ordem de Libra, tomando um dos assentos da Guilda das 7 Estrelas.
+
+O declínio da magia se torna óbvio, feitiços falham ao redor do mundo e artefatos perdem seu poder. Menos criaturas mágicas nascem, e os dragões começam a perder sua inteligência.
+
+Percebendo
